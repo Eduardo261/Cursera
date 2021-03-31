@@ -1,3 +1,0 @@
-# Terriblemente Desterrados
-Xd
-
